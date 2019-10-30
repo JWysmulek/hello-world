@@ -1,0 +1,1 @@
+pisze coś cały czas
